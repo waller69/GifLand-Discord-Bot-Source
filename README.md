@@ -1,2 +1,2 @@
 # GifLand-Discord-ot-Source
-https://prnt.sc/M9oJvR0EQGUS https://prnt.sc/0pOiUCFQbYly
+Tepari peste tot in ziua de azi! - https://prnt.sc/M9oJvR0EQGUS https://prnt.sc/0pOiUCFQbYly (bogdan#0003)
